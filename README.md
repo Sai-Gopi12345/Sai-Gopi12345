@@ -20,8 +20,8 @@
 
 📫 How to reach me:
 📧 saigopigonuguntla1234@gmail.com
-🔗 LinkedIn
-🔗 GitHub Projects
+🔗 https://www.linkedin.com/in/saigopi/
+🔗 https://github.com/Sai-Gopi12345
 
 😄 Pronouns: He/Him
 
