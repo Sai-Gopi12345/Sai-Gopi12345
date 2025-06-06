@@ -1,5 +1,5 @@
 👋 Hi, I’m @Sai-Gopi12345
-🎓 Final Year B.Tech Student | AI & Data Science Enthusiast
+🎓 Recent Graduate - 2025 | AI & Data Science Enthusiast
 📍 From Vasireddy Venkatadri Institute of Technology (VVIT)
 
 👀 I’m interested in:
